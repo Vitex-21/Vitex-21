@@ -1,0 +1,6 @@
+- *Opa me chamo Victor*
+- 🥷Eu sou aluno do alura
+- ⛩️Sou estudante do Iglea
+- 💀Minha cor favorita é Vermelho
+- 🏯 Neu filme favorito é Scott Pilgrim contra o Mundo
+- 
