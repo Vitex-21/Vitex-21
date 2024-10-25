@@ -3,5 +3,4 @@
 - ⛩️Sou estudante do Iglea
 - 💀Minha cor favorita é Vermelho
 - 🏯 minha serie favorita é Breaking Bad
-- ![][image](https://github.com/user-attachments/assets/30c9829b-c16e-46d9-86fa-dab02a754abc)
-
+- ![][image](https://github.com/user-attachments/assets/954b6a08-fe3f-48ed-8184-b977d32c1643)
